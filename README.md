@@ -1,4 +1,4 @@
-#### Projeto Plim
+#### Projeto Plim✨
 
 ##### Área de Domínio: Jogos.
 
